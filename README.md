@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/surajit-dey-surajit2003/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1g2p0DNfxVs1YJ-kILJ8GDUwmPr4Vr8xu/view?usp=drive_link](https://drive.google.com/file/d/1g2p0DNfxVs1YJ-kILJ8GDUwmPr4Vr8xu/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1w-ZppWBjs4bSZ-m4igL5obFVCvxcyJM0/view?usp=sharing](https://drive.google.com/file/d/1w-ZppWBjs4bSZ-m4igL5obFVCvxcyJM0/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
